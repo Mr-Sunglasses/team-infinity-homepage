@@ -9,7 +9,8 @@ We are team of creatively diverse. driven. innovative individuals working for SI
 [Ananya Sharma](https://www.linkedin.com/in/ananya-sharma-202737211/)\
 [Vaishnavi Sangal](https://www.linkedin.com/in/vaishnavi-sangal-b3777a203/)\
 [Yashasvi Baliyan](https://www.linkedin.com/in/yashasvi-baliyan-947bb9206/)\
-[Kushagra Srivastava](https://www.linkedin.com/in/kushagrathisside/)
+[Kushagra Srivastava](https://www.linkedin.com/in/kushagrathisside/)\
+[Satyam Sharma](https://www.linkedin.com/in/satyamx64/)
 
 
   
